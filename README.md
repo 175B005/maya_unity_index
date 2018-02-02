@@ -14,7 +14,7 @@
  [![](https://github.com/175B005/maya_unity_index/blob/master/unityrennkei6.jpg?raw=true)](https://github.com/175B005/maya_unity6)   
  
  [![](https://github.com/175B005/maya_unity_index/blob/master/unityrennkei7.jpg?raw=true)](https://github.com/175B005/maya_unity7) 
-
+ [![](https://github.com/175B005/maya_unity_index/blob/master/unityrennkei7.jpg?raw=true)](https://github.com/175B005/maya_unity8) 
 お仕事用メールアドレス　（isry0business@gmail・com）←.×・になっています。注意を。  
 
 あるいは　学業用メールアドレス　（175b005gp12@gmail・com）まで、気軽にどうぞ。
